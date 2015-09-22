@@ -1,2 +1,1 @@
-##Hello 
-##welcome my class
+##資管3A 0224057葉榮儉
